@@ -58,3 +58,38 @@ El termino rnc adquiere una fuerza considerable a partir de la obra del suizo Ja
 30 de julio de 1511, Arezzo, Italia  
 27 de junio de 1574, Florencia, Italia  
 Parte de florencia de galeria uffici y corredor vasariano las hizo el (he estau)  
+[22/Octubre]:#
+# Leonardo Da Vinci
+Abandonaba florencia entre el 81 y 82, sabemos documentalmente que en feb de 1482 esta ya en milan. el pq se marcho es un cumulo de cuestiones, entre las que normalmente se incluye, que Leonardo tiene varios probelmas para sobrevivir en una ciudad como florencia en la que los encargos no le llueven sumado a su caracter de no terminar las coas. De aqui que se vaya a Milan bajo la corte de ludivico sforza, teniendo un dinero habitual, dejando de pensar en los incomes y dedicando todo a esas obras.  
+En un principio viaja a milan como mision diplomatica, acompañado de un musico Atalante Migliorotti, para obsequiar a Ludovico Sforza con una lira de plata, con una cabeza de caballo.  
+En Milan esta hasta el 1500, antes de abandonar florencia, hace un inventario de las cosas con las que se traslada. Algunas obras como la Gioconda, iban siempre acompañando a el pintor, son cuadros con un proceso muy dilatado en el tiempo. Aparece el inventario en el Codice Atlantico. Muchos datos precisos se deben a que leonardo lo escribia y pintaba todo.  
+Unos años antes Leonardo habia escrito a Ludovico, pidiendole trabajar para el, ofreciendose como ingeniero militar, conociendo que la fuerza de las armas en milan era algo sustantivo e importante. En la parte final relatba que ademas de esas cuestiones belicas, dijo que se podia encargar de una *estatua ecuestre de bronce*, recordando a esas esculturas de la antiguedad como la de marco auerelio. Sabiendo que Ludovico queria tener una para pasar a la posteridad. Finalmente consiguio ese encargo.  
+Cuando empieza a trabjar para Ludovico, le abre la posibilidad a Leonardo de recibir encargos extra. La fama de leonardo le precede, es un artista de maxima categoria, pero no acaba las obras. XLQ Ludovico le pide muchas cuestiones menores que tienen que ver con la corte, haciendo asi grandes escenografias, obras de teatro... En este entonces Milan tiene 150.000 habitantes, siendo la 3ra ciudad mas poblada del mundo, por debajo de Londres y Paris.  
+## La Virgen de las Rocas
+Al poco tiempo de llegar recibe un encargo muy especial, dando pie a una de las imagenes mas controvertidas e importantes de Leonardo, la _*Virgen de las Rocas*_, (La idea del encargo se remonta a la cuaresma de 1475, cuando el fraile y teologo franciscano Stefano da Oleggio preidco un semron en San Francesco Grande, durante el cual propuso construir una hermosa capilla y fundar una cofradia, ambas dedicadas a la Inmaculada Concepcion de la Virgen.). De forma bastante temprana, en 1576 la capilla es demolida, tiene problemas de estabiliad y hay un cambio de gusto. El retablo de madera de la capilla, fue tallado por Giacomo del Maino entere 1480 y 1482, que fue desmantelado en 1780, de aqui salio la virgen de las rocas, que acabo en Gran Betraña, se vende a un pintor ingles. Finalmente Napoleon demolio toda la Ilgesia de San Francisco Grande en 1806 para dar paso a un cuartel.  
+*Polemicas sobre la inmaculada concepcion* en este tiempo, no hay ninguna imagen cerrada sobre ella, la iconografia se hizo mas tarde, habia na mas que discusiones sobre si el dogma era cierto o no.  
+Dos tablas, una de ellas se traspaso mas tarde al lienzo, diferencias:
+- Mano del angel señalando
+- Distintos estados de conservacion, barniz en la primera version, tiende a amarillear con el tiempo, es la que se encuentra en el Louvre. La segunda version, se encuentra en el National Gallery de Londres.  
+*Datos documentados:*
+- Fecha de contrato, 25 abril de 1483. Cofradia de la inmaculada concepcion le pide la obra a giacomo de maino y una serie de pintores, entre ellos Leonardo al que se le pide que haga el tema central, la virgen con el niño, un grupo de angeles y dos profetas. Al final Leonardo pinta lo que quiere.  
+- 1490 artistas rechazan valoracion que se hace de la obra. Los artistas piden una mayor cantidad monetaria. (_Debe de estar acabada si no no podria ser valorada_).  
+- 1496 Problema sin resolver. Interviene procurador de la cofradia.  
+- Junio de 1503. Nuevas Apelaciones de los artistas.  
+- 4 abril de 1506. Nombramiento de dos arbitros en busca solucion. Dictaminan que Leonardo debe acabar su obra.  
+- 18 Agosto de 1508. Tabla finalizada e instalada.  
+- Octubre de 1508. Pago final a Ambrogio da Predis y Leonardo.  
+Th. con mas visos de verosimititud, siguiendo los documentos en 1490 se hace la que hoy esta en el louvre, debido a la valoracion que se hace que no cumple expectaivas, es probable que los artistas vendieran la obra (quien la compra?, ludovico sforza como regalo de boda a su sobrina con el emperador de xxx?, no se sabe a quien), unos años despues comenzarian una segunda version, cuando leonardo abandona milan en el 99 la tabla esta sin acabar, xlq tendria sentido que en 1506 le pidieran acabar la obra.  
+### Composicion
+La mano del angel uriel, señala a San Juanito, estan el niño jesus y la virgen mery tbb. Uno de los textos aprocirfos, viene a contar que san juanito una vez que habia perdido a sus padres, se habia ido hasta un desierto, donde fue cuidado por el angel uriel, se encontro con el niño jesus mucho antes de que fuera quien le bautizara, en el momento en el que la familia va a egipto. Ese es el momento que trata aqui Leonardo.  
+Fuera de lo comun, el contexto, estan en una gruta (origen simbolico, pero significado? oculto).  
+La narracion parte de Uriel, el cual nos mira y nos intruduce en la composicion, el cual señala a san juan, este esta rezando al niño, el cual reconoce a san juan y le esta bendiciendo con los dedos, la virgen engloba toda la composicion, no solo con el manto, si no con la gestualidad de las manos. (leonardo buscaba que las emociones trascendieran y se transmitieran mediante las manos).  
+Leonardo tiene una teoria de los colores, se sirve del smufatto, veladuras, juegos de luces trabaja con las zonas claras y oscuras para potenciar el color, tambien las lineas de la pintura son inperceptibles. Piensa que la sombra es mucho mas poderosa que la luz. Contraposicion de colores frios y calidos, para que sean mas brillanate, satura el color no dandole luz si no pintandolo mas fuerte.  
+Tema de plantaas y rocas, todas cumplen las caracteristicas que tienen que tener, es un conjunto de muchos estudios y muchas obras. Plantas y flores tambien con caracter simbolico, que se ponen en conexion con la pureza, la virginidad...  
+Todo esta perfectamente calibrado, de ahi que se tarde tanto en verdad, Leonardo piensa hasta que un reflejo de un colo en otro da un tercero que tambien pintaba.  
+*Reflectografia infrarroja (IRR) e Hiper...*.  
+Huellas dactilares de leonardo sobre el pomulo de la virgen.  
+## Retrato Ecuestre
+Se queria que se hiciera a la cera perdida, siguiendo los metodos de los antiguos.  
+Leonardo llego a hacer el caballo en arcilla a tamaño real, se destruye por parte de los ejercitos franceses.  
+Hubiera sido lo maximo en escultura ecuestre en bronce.  
