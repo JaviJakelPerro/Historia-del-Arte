@@ -89,3 +89,39 @@ Clasificacion general:
     -Textos o publicaiones sobre arte en general
     Trabajos cientificos relacionados tematicamnte con la investigacion que incluyen transcipcoiones o reporduciones de fuentes de primera mano o bien fuentees ineditas.
 [22, Octubre]:#
+[Este tio es un puto coñazo]:#
+Ludovico Dolce, estabamos viendo textos no de artistas, si no de aficionados, que son capaces de escribir, (cortesanos de buena familia, era un complemento importante de la educacion aprender artes). Pertenece al circulo Veneciano, importancia del color, es lo que lo diferencian de los pintores florentinos. Estos autores entre ellos Ludovico, hablan de la importancia del color.  _Hay que huir del exceso del esmero_.  
+### Manieristas Tardios
+Ya avanzado S.XVI:
+- **Giovanni Battista Armenini** Dei Veri Precetti della Pittura (1586).  
+- **Federico Zuccaro** Idea de Pittori, Scultori e Archietti (1607).  
+- **Giovanni Paolo Lomazzo** Trattato dell'arte della pittura, scultura e architettura (1584). Bien importante este tio 
+En este siglo nacen las academias.  
+## Giovanni Paolo Lomazzo
+Fue un pintor y escritor milanes. el Tratttato es el tratado de arte mas grande y completo publicado en el siglo XVI y ha sido descrito como la "Biblia del manierismo", esta dividido en 7 libros, cuyos temas son (Proporcion, movimeinto, color, luz, perspectiva, practica,Historia, el ultimo contiene una guia de iconografia cristiana y clasica.).  
+Algo que siempre se nos enseña como una caract. del manierismo, _forma serpentinata_, como el Laoconte, formas retorcidas para transmitir mayor sensacion de tension espirtual y sufrimiento, los artistas maniersitas siguen al pie de la letra esas formas ascensionales.  
+Sobre el concepto de imitacion y diseño interno. Fundamental.  
+## Los tratados de la Contrarreforma 
+- La celebracion del Concilio de Trento (1545-1563) ha de contemplarse como cristalizacion de la respuesta de la iglesia catolica ante los grandes cambios que en el mapa religioso europeo se estaban produciendo desde prinpios de siglo.
+- En el campo de la cultura, el proceso de radicalizacion que se impulso desde Trento significo un abandono de gran parte de los ideales del Humanismo renacentista.  
+(A raiz del concilio de trento se marcan unas directrices, hay que limitar la actividad artistica, esta tiene que estar sometida a la voluntad de la Iglesia, hay que controlar a los artistas).  
+- En lo que se refiere a las artes plasticas, la doctrina contrareformista hizo especial hincapie en la definicion del arte como una actividad cuya justidicacion ultima radica en su utilidad como instrumento religioso.  
+[Faltan 2 o 3 puntos este men va to rapido pasando las diapositivas el ijoputa]:#
+Los tratados de la contrareforma, los mas importantes:
+- **Gabriele Paleotti**. _Discorso intorno le immagini sacre e profane_. Intento de codificar la imagen artistica para que los artistas esten sometidos a esas reglas.  
+San ignacio de Loyola, con su insistencia en metodos devocionales como la composicion de lugar influyo en la formulacion de nuecos modos de convivencia con la imagen sagrada.  
+San Carlos Borromeo, cardenal de milan, escribio instrucciones sobre la construccion y decoracion de las iglesias _Instructiones Fabricae et Supelectilis Eclesiasticae, c.1572_.  
+# FUENTES DEL RENACIMIENTO EN EUROPA SEPTENTRIONAL
+Alberto Durero, los cuatro de la simetria, c1528. Tenia la pretension como leonardo de hacer un trartado sobre arte. Le viene la idea de su segundo viaje a Italia, Durero concibio la idea de hacer un ambicioso tratado, sin embargo a partir de 1512, rebaja las pretensiones iniciales y se pone a escribir sobre diversos asuntos relacionados por la pintura. Se compilaron en cuatro libros que se publican una vez el ha muerto, no todos estan acabados. **Libro bastante practico**.  
+**_Karel van Mander_**, el _Het Schilder-Boeck_, inspirado en Vasari pero hace algunas aportaciones, contiene mas de 250 biografias de pintores. Empieza con un poema didactico sobre teoria de pintura y sigue con 3 libros historicos:
+- I. Historia del arte antiguo, que debe casi todo a Plinio
+- II. Historia de los pintores italianos traducida Vasari pero con ampliaciones
+- III. Historia de los pintores Alemanes, flamencos...  
+## Fuentes literarias del renacimiento en España
+Francisco de Holanda, _de la pintura antigua o Dialogo de la pintura_, 1548.  
+Pintor, miniaturista, ilustrador y teorico. Portugues de origenes familires flamencos. Durante su estancia en Roma entro en contacto con muchos artistas italianos, Miguel Angel entre ellos. Se traducio al castellano en 1563, por otro pintor portuges, Manuel Denis.  
+### Anotaciones del Greco
+Libro de las vidas de Vasari.  
+Probablemente Zuccaro regalasa esta obra al Greco cuando este fue su anfitrion en Toledo en 1586. Se enriquece entonces con las numerosas anotaciones de mano del pintor. Despues la obra paso a su discipulo Tristan el cual tambien realizo anotaciones. Algunas de ellas estan firmadas.  
+### Noseq mierdas
+*Ambrosio de morales*, *Juan Cristobal Calvete de Estrella*
