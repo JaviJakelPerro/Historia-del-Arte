@@ -101,8 +101,8 @@ Fase final del geometrico, empieza la figura humana en el arte griego (Segunda m
 Cuando fideas hace el zeus de olimpia hace un taller de las mismas medidas de las celdas del templo, se conserva muy bien pq luego se convirtio en una iglesia bizantina.  
 Olimpia. Copia de un original del 450 a.C. Se le ve el pelo largo como los curoi, mas adelante del siglo 450 ya se cortaban los dioses el pelo.  
 Rostros sin expresion animica alguna, idelaizacion por antonomasia en el siglo V, boca muy chiquita, menton bastante importante, rostro amplio cara redonda, ojos grandes abieros. La expresividad del arte griego esta en la perfecion, no se preocupan por la psqiue, si no que el Dios esta en otra dimension alejado de cualquier contingencia relacionada con la tierra, no tiene granos ni na. Barba muy abundante y distribuida. Probablemente este modelo tambien lo tenga el zeus fidiaco. Este modelo se prolonga pero sufre de modificaciones estilisticas con el tiempo. Prototipos Siv ac. y Siii ac.  Lo que en el modelo apleocristiano es el cristo siriaco, deriva de este zeus de fidias. el otro jesus sin barba viene de un Apolo.  
-[22/Octubre]:#
-[Tengo mas clases suyas escritas en la libreta]:#
+[22/Octubre]:#  
+[Tengo mas clases suyas escritas en la libreta]:#  
 El Zeus es el modelo que isnpiro a salvador dali, para hacer su obra en 1946.  
 Hablar de Zeus es referirse a Júpiter. Su nombre deriva del latino Jovis-Pater, cuya raiz Iov, tiene su origen en el indioeuropeo Dieu.  
 Una vez que se asimilan los dioses griegos con los romanos, las funciones suelen ser parecidas, identicas, en algunos casos, aunque el mundo romano, desde el puno de visto conceptual es diferente. Mundo griego a groso modo era de artistas, filosofos, tenia mas importancia el pensamiento y la cohesion social. La civilazion romana tiene una cultura imperialista, basada en el poder militar, ejercito y expansion. Esto tuvo consecuencias en la religiosidad y concecpion de los dioses.  
