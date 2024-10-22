@@ -125,3 +125,4 @@ Libro de las vidas de Vasari.
 Probablemente Zuccaro regalasa esta obra al Greco cuando este fue su anfitrion en Toledo en 1586. Se enriquece entonces con las numerosas anotaciones de mano del pintor. Despues la obra paso a su discipulo Tristan el cual tambien realizo anotaciones. Algunas de ellas estan firmadas.  
 ### Noseq mierdas
 *Ambrosio de morales*, *Juan Cristobal Calvete de Estrella*
+Viernes practicas grupo 1. Archivo Historico Nacional y despues se presentan unos trabajos
