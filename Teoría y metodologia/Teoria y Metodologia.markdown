@@ -1,0 +1,21 @@
+[22, Octubre, 2024]:#
+[Me he saltado casi los dos primeros meses de clase y practicas xD, vine a la presentacion na mes, me tengo que poner las pilas con esto]:#
+# 3. Vasari
+## Primera respuesta a las vidas de Vasari.
+Respustas / criticas que se hizo a las vidas de Vasari, la primera de ellas vino de miguel Angel, le debieron desagradar varias cosas de las mismas, por lo que Ascanio Condivi, un alunmo suyo: a traves del cual miguel angel a traves de convidi intenta dismilar aspectos suyos que no le gustaron de las vidas.  
+- Vasari no conoce a M.A, hasta una edad avanzada por lo que las noticias de sus origenes estan bassadas en "creencias", no llega a situar bien ni su lugar de nacimiento.  
+- El artista nace, no se hace, relativizacion de sus maestros: Domenico Ghirlandaio.  
+- Cultura literaria: poeta y nuevo Dante. Artista intelectual.  
+- Vasari en sus vidas incidio en el caracter virulento y dificil de miguel Angel, algo que convidi no niega sino que lo justifica, no lo atribuye a un caracter agrio, sino a uno melancolico.  
+- Nosotros sabemos pq vasari llega a mencionar que miguel angel le regalaba dibujos a jovenes. Tomaso Cavalieri. Convidi en cierto modo asexualiza a Miguel Angel y lo plantea con relaciones de amor platonico. No hay escritura inocente.  
+- Discurso en cuanto a la realizacion de la tumba de Julio II. El proyecto tiene tela y historias, echar un ojo.  
+Elemento clave en la biografia de Vasari, cuando se contraponen las 2 figuras en el campo de la pintura mas exponentes, Miguel Angel y Rafael. Se cita a una figura clave **Sebastiano del Piombo**,pintor, discipulo de la tradicion veneciana que no le gusta a Vasari, pq se descuida el diseño en pos de el color sensitivo. Sebastiano llega a roma, conoce a miguel angel y entabla amistad, que acaba desembocando en una colabroacion, en la que miguel angel artista del diseño, colabora con sebastiano haciendo unos dibujos, para que sebastiano le aplique el colorido veneciano, lo hacen para contrarrestrar el auge de Rafael, el cual llevaba muy bien los dos puntos. Al final acabaron peleados no se sabe porque y no lo mencionan en las de Convidi, un ejemplo de Dammatio Memoriae.  
+## Segunda respuesta a Vasari. Pietro Aretino.
+El se autodenomina pintor, aunque no se conoce ninguna de sus obras pictoricas, solo sus textos. La gente de la epoca lo leia mucho, tenia la fama de "el latigo de los principes". Se va a ganar muchos enemigos en roma, le apuñalan aunque no le matan y se pira de alli, se va a la corte de mantua, en el año 1527 llega a Venecia. Aqui se hace un referente para los jovenes escritores.  
+No invento el genero epistolario, pero si fue **el maximo referente**, llegando a escribir 6 volumenes recopilatorios de sus cartas, publicados entre 1541 y 1557 (este ultimo postumo ya que muere en el 1556).  
+Relacion con tiziano la remarca el profe, tanto amistad como colaboracion artistica, simbiosis de talento artistico donde ambos se beneficiaban mutuamente.  
+Cartas de Aretino a Miguel Angel, hasta que le pide unos dibujos a Miguel Angel y este cesa su contacto con el, por lo que aretino se enfada y se pica mucho. Le escribe una carta en privado metiendose con el y criticando todo el juicio final "mas que la pintura de una iglesia, parece la pintura de una sauna", en principio se la escribe manuscrita de manera privada, posdata juego en italiano "divino", guarda miguel angel la carta y por eso se conoce a dia de hoy, pero no le contesta nunca.  
+**Dialogo di pittura**,_Paolo Pino_, Venecia, 1548. Pasan 9 años y acaba convirstiendose en una respuesta a las vidas (?), Dolce usa a Aretino y otro literato llamado Fabbrini (este como alter ego de Vasari), trata de bajar a miguel angel de un pedestal y poner a Tiziano en lo maximo. Cierra el libro escribiendo una biografia (la primera que se escribe) de Tiziano.  
+" Se pasa de 2 pintores que discuten a 2 literatos que hablan de la pintura. "?.  
+Plantea un parangon en cada una de las partes de la pintura entre Miguel Angel y Rafael, aprovechando la cuerda que Vasari dejo en sus vidas. "_Vamos a desmontar a Vasari, partiendo de Vasari_". Solo le interesa el debate pictorico.  
+## Criticas el Greco a Vasari. Prox dia

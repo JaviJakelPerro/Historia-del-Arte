@@ -88,3 +88,4 @@ Clasificacion general:
     - Textos o publicaciones de caracter general (utiles para situar la obra de arte en us contexto historico(bibliografia))
     -Textos o publicaiones sobre arte en general
     Trabajos cientificos relacionados tematicamnte con la investigacion que incluyen transcipcoiones o reporduciones de fuentes de primera mano o bien fuentees ineditas.
+[22, Octubre]:#
