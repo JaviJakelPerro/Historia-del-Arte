@@ -136,3 +136,26 @@ No solo se representa la boda, si no que son una pareja de casados.
 Zeus se trago a una de sus primeras esposas, Metis, personificacion de la ley universal e inteligencia. Xlq Zeus sera juez universal. De este acto germina y da lugar a la diosa de la inteligencia. *Zeus sintió un terrible dolor de cabeza, llamó a Hefesto para que le abriera la cabeza y este con un golpe de su hacha le metió y de ahi salió Atenea completamente armada*.  
 -**Preparacion del parto. Swing Painter 6th century B.C. Boston MFA**. Aparecen las parteras a los lados de Zeus, aparece tambien *Ilitáa*, la diosa del parto.  
 Iconografia tradicional normalmente lo que representa tiene mas que ver con esto: Hefesto, Ilitia, Zeus. ![Nacimiento](https://www.theoi.com/image/K8.13Athena.jpg).  
+*Peplo Dorico*.  
+Las figuras representadas de frente son adecuadas para: Borrachos, Gorgonas, los que estan a punto de morir tal... En una representacion Zeus sale mirando al frente mientras pare a Atenea, significa que le esta doliendo mucho, arte griego muy expresivo.  
+Ojos muy abiertos en las figuras, tambien tienen varias lecturas desde el punto de vista iconografico: aunque pueda significar dolor, tiene mas que ver con la representacion de la divinidad.  
+Sometimes aparece Apolo con la musica, para mitigar, el ruido que hacen los dolores. Se tocaban instrumentos en sacrificios tambien con este fin.  
+**Fronton Oriental del Partenon**. Con sentido politico.  
+**Solo aparece en el mundo griego la representaciion de su nacimiento**. Obras recientes muy escasas.  
+### Nacimiento de Dioniso
+El mito lo que cuenta es que Zeus le habia prometido a Semele (una de las amantes extraoficiales de Zeus) concederle cualquier deseo. Hera con mala intencion va a meterle mierda diciendole que a ella Zeus se le muestra con todo su poder. Por lo que Semele le pide eso y se acaba muriendo por los rayos que caian. Semele estaba encinta y lo que hace Zeus es insertarselo en el muslo. Dioniso nace dos veces.  
+### Zeus detras de las mentirosas
+Hay muchas escenas de persecucion amorosa, lo que le interesa es la iconografia de Zeus el cual aparece: desnudo barbado coronado, con un cuerpo perfectamente atletico y con un manto que solo le cubre los hombros, debido a que esta en actitud de carrera.  
+### El que corta el bacalao
+Otras veces se le ve como Rey y Dios del Olimpo que realmente dirige los acontecimientos.  
+**Zeus enviando a Hermes e Iris**. *Louvre*. Escena de autoridad.  
+(Indumentaria de Hefesto es mas corta de la de los demas (*exomis*(deja un hombro al aire para poder mover el brazo)), porque es el unico que trabaja, tambien es el unico que tiene defectos fisicos)  
+### Zeus con los muchachos
+La pasion que sintio por ganimedes, un joven troyano al que rapto con la ayuda de su aguila y lo llevo al olimpo para que sirviera como copero de los dioses.  Representacion haciendo livaciones con una jarra.  
+### Apotheosis
+Hay muchisimas escenas de estas en la antiguedad, escena de ascension, presente en camafeos.  
+![Camafeo](https://b3299351.smushcdn.com/3299351/wp-content/uploads/Met-Sardonyx-Jupiter-DP155546-xxx.jpg?lossy=0&strip=1&webp=1).  
+(Cuerno de la cornucopia, algunos mitologos dicen que es el cuerno de la Cabra Amaltea).  
+En muchas corazas militares aparecen, es el simbolo de la apotheosis, si el guerrero muere, ahi esta el simbolo de Zeus para elvarlo a la gloria.  
+**Bodega central Piedra interna Arco conmemorativo de Tito**.  
+![Tito](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEip0YZlRr4d78WtIfC53Q__PxLLD9shJk774YyzSYkn0k_O2H1IqZ7oOJqBqCd5J3o-2gP3X9cliJwRItQF31X65XmxBL0lEQ19y3RL_NS461kxMhemDS7J7tEcdVCPqiWKclzPtqogxjM/s1024/Arc_titus_relief_voute.jpg).  
