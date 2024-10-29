@@ -111,6 +111,28 @@ Entre los epitetos con los que se nombra a Jupiter, predominan los que tienen qu
 El modelo de Fidias, que ocupaba el interior de la celda del templo de Olimpia y el modelo de Briaxis dan lugar a la imagen del jupiter romano.  
 El sincretismo es como sabemos, la fusion de creencias de diferentes religiones, las cuales dan lugar a una creencia nueva. Pj 2 dioses del cielo, 2 d la tierra, el mar... De culturas afines y muy relacionadas entre si. Amón era el d carnero egipcio, sincretismo entre el y zzeus, por lo que es comun que en la zona del mediterraneo, aparezcan imagenes de **Zeus Ammon**. Simbiosis entre el mundo grecorromano y egipcio es muy fuerte desde el S.IV a.C. otro ejemplo de esto es el Zeus Serapis, el cual lleva un Kálathos sobre la cabeza.  
 Todas las ciudades romanas tenian un capitolio, templo con 3 celdae (capillas), en el interior se advierten las imageenes de los tres dioses que eran venerados en el interior (Zeus, Hera y Atenea). Lo que no varia nunca es que jupiter esta en el centro, minerva y juno si varian, pueden estar todos tanto sentados, como de pie. (simbolo de juno pavo real).  
-Se encuentran monedas en las cuales se les representa en su forma antropomorfa. ! [Moneda](https://lh4.googleusercontent.com/proxy/_m8u-UgGtzOdrR3rHLRD5spaK4GLogcknA7oCV37E_8Hy2792V2MUjIRafXe6JALlGRD7X4E_qzo6TBI1yvMS4FhJSQ6ON7-H3UPm6PFIa3nY9-kNR_2G17WjxNp7ggb8BcARlo).  
+Se encuentran monedas en las cuales se les representa en su forma antropomorfa. ![Moneda](https://lh4.googleusercontent.com/proxy/_m8u-UgGtzOdrR3rHLRD5spaK4GLogcknA7oCV37E_8Hy2792V2MUjIRafXe6JALlGRD7X4E_qzo6TBI1yvMS4FhJSQ6ON7-H3UPm6PFIa3nY9-kNR_2G17WjxNp7ggb8BcARlo).  
 Una de las iconografias mas importantes es el zeus keranios /tonante el cual se ecnuentra en el momento previo a lanzar el rayo, representa el poder aniquilador de la tormenta y que el hombre no puede contener ni dominar. Prototipo que surge en Grecia. En Dodona habia un culto muy importante a Zeus, es casi oracular.
 [Helena tiene mas cosas]:# 
+[29/octubre]:#
+### Propaganda politica
+Modelo de Olimpia, fue uno de los iconos que mas trascendencia tuvo a posteriori, la primera vez que se uso con un fin de propraganda politica, fue en las monedas de Elis (Antigua Olimpia). Series monetales donde aparece el Zeus tonante, y imagenes en las que aparece este zeus con los titanes debajo del trono.  
+Desde que muere A.Magno 323 a.C. Se convierte en un mito y como tal sus sucesores, los diacodos (diferenes que se reparten entre si este inmeso imperio de Alejandro), se toman monedas donde Alejandro se toma como modelo de Divinidad. Alejandro con cuernos (Representado como Zeus Amon). Divinizacion del emperador. Es la *primera vez que sucede*, en el mundo romano, se vuelve una practica comun.  
+**Emperador Claudio** *representado como jupiter en los museos Vaticanos*. Cuerpo, actitud y atributos son de Zeus. Viene a significar la ***aphotheosis*** cuando el difunto se muere es elevado a los cielos y goza de la condicion divina.  
+**Mascarones**. Cabezas de Jupiter con rostro frontal, poderoso, embrabecido y con los cuernos. Se colocaban pj en merida, en el foro provincial. Claustro catedral de tarragona.  
+## Mitos
+### Infancia 
+Con los Curetes y la Cabra Amaltea.  
+- *Curetes*. Entrechocaban sus armas para que Chronos no escuchara el llanto de Zeus.  
+- Piel de la cabra. As trophy que porta Zeus como escudo.  
+Hay monedas en las que aparece el Zeus niño montado en una cabra.  
+**Danzas Pirricas**. De guerreros.  
+### Bodas
+**Bodas de Zeus y Hera**,*Pixide. S.VI a.C. Louvre*. Novia velada y en un momento determinado se levantara el velo. Gesto absolutamente convencional que nos indica el matrimonio, o que la mujer representada es una mujer casada. Levantarse el velo, es un gesto de molestia en las mujeres griegas.  
+- En el momento de la boda, Iris, preparó a la diosa. A veces aparecen juntas.  
+**Pompeya**,*Bodas Zeus y Hera en el Ida. Casa del poeta tragico*. Utilizan este mito, como escena matrimonial que decora normalmente recipientes femeninos. En el mundo romano, estancias de las zonas privadas.  
+No solo se representa la boda, si no que son una pareja de casados.  
+### Nacimiento de Atenea.  
+Zeus se trago a una de sus primeras esposas, Metis, personificacion de la ley universal e inteligencia. Xlq Zeus sera juez universal. De este acto germina y da lugar a la diosa de la inteligencia. *Zeus sintió un terrible dolor de cabeza, llamó a Hefesto para que le abriera la cabeza y este con un golpe de su hacha le metió y de ahi salió Atenea completamente armada*.  
+-**Preparacion del parto. Swing Painter 6th century B.C. Boston MFA**. Aparecen las parteras a los lados de Zeus, aparece tambien *Ilitáa*, la diosa del parto.  
+Iconografia tradicional normalmente lo que representa tiene mas que ver con esto: Hefesto, Ilitia, Zeus. ![Nacimiento](https://www.theoi.com/image/K8.13Athena.jpg).  
