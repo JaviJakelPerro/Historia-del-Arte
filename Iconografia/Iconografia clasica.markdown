@@ -159,3 +159,31 @@ Hay muchisimas escenas de estas en la antiguedad, escena de ascension, presente 
 En muchas corazas militares aparecen, es el simbolo de la apotheosis, si el guerrero muere, ahi esta el simbolo de Zeus para elvarlo a la gloria.  
 **Bodega central Piedra interna Arco conmemorativo de Tito**.  
 ![Tito](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEip0YZlRr4d78WtIfC53Q__PxLLD9shJk774YyzSYkn0k_O2H1IqZ7oOJqBqCd5J3o-2gP3X9cliJwRItQF31X65XmxBL0lEQ19y3RL_NS461kxMhemDS7J7tEcdVCPqiWKclzPtqogxjM/s1024/Arc_titus_relief_voute.jpg).  
+[5/noviembre]:#
+[llego 15 mins tarde, me faltara algo]:#  
+## Sátiros
+### Sátiros mirones
+diferencia entre espejo etrusco y griego.  
+Etruscos eran "piratas y paletos" que se dedicaban al pillaje y pirateria, pero tenian muchisimo dinero, podian comprar las mejores vasijas griegas (se han encontrado alli), sus espejos son imitacion de los espejos griegos.  
+**Eros con antorcha en la mano** va del himeneo, sexxxo. Tiene aspecto de eroticci (niño).  
+## Neptuno
+Nethus,dios antiguo etrusco de las aguas, de elementos liquidos. Dios de relevancia limitada (elemento humedo), no poseia leyendas, dios de las nubes y propiciador de la lluvia. Mas tarde adorado como dios de las fuentes y los manantiales. Puertos. Su fiesta era el 23 de julio, cuando esta la sequia en lo mas alto.  
+Los marinos y las gentes del mar tenian mucha reverencia a este dios.
+**Aplustrum** Adornos exteriores colocados en la popa del barco.  
+### Bodas Neptuno y Anfitrite
+Una Nereida, la cual no tiene nombre en el mundo romano.  
+3 hijos:
+- **Tritón**. Personificacion del truneeo que precede a las tormentas.  
+- **Rode**. De ella viene su nombre de Rodas.  
+- Otro hijo que no viene al caso.  
+HictioCentauro: Centauro pez, las partes delanteras son de caballo, las de atras de triton.  
+A partir del SIId.c los mosaicos italianos son blancos y negros como norma, en africa eran mas exhuberantes y con una policromia muy rica.  
+Nimbo en el mundo pagano no indica santidad, si no estatus, jerarquia e importancia.  
+En roma surge el tema mas importante y que ha dado lugar a mas obras de la iconografia de neptuno, el cual se prolongara hasta siglo 20, tiene que ver con los triunfos navales de los emperadores. Egipto de Cleoprata VII y Antonio, batalla de Aptio, en el 31 30 a.C (ultima conquista a grecia), el emperador Augusto crea una iconografia en la que se pone a el como neptuno, conduciendo pj cuadrigas de caballos marinos. 
+Motivo comun en la arquitectura griega clasica: ***Clipeo fromado por listones negros en el cual aparecen cuentas y carretes***.  
+**Pedum**: Callado rustico.  
+### Quos Ego 
+Fragmento eneida virgilio en la que neptuno amenaza a los vientos, empieza regañandoles diciendo "Quos Ego", es ese momento en el que neptuno le implora a los vientos que se calmen. 
+![QuosEgo] (https://www.meisterdrucke.es/kunstwerke/400w/Marcantonio_Raimondi_-_Neptune_Calming_the_Tempest_That_Aeolus_Raised_Against_Aeneass_Fleet_-_(MeisterDrucke-1291515).jpg) 
+Imagen de neptuno a xrtir de siglo 16, apropieda y decorosa para adornar las fuentes monumentales que en ese momentose hacian en europa, el dios del mar era el motivo mas significativo para hacerlo.  
+Gesto de la mano del de la fontana di la piaza di bolonia, como aplacando a los vientos.  
