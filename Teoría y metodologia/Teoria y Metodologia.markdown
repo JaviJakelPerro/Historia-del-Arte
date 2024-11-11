@@ -18,4 +18,15 @@ Cartas de Aretino a Miguel Angel, hasta que le pide unos dibujos a Miguel Angel 
 **Dialogo di pittura**,_Paolo Pino_, Venecia, 1548. Pasan 9 años y acaba convirstiendose en una respuesta a las vidas (?), Dolce usa a Aretino y otro literato llamado Fabbrini (este como alter ego de Vasari), trata de bajar a miguel angel de un pedestal y poner a Tiziano en lo maximo. Cierra el libro escribiendo una biografia (la primera que se escribe) de Tiziano.  
 " Se pasa de 2 pintores que discuten a 2 literatos que hablan de la pintura. "?.  
 Plantea un parangon en cada una de las partes de la pintura entre Miguel Angel y Rafael, aprovechando la cuerda que Vasari dejo en sus vidas. "_Vamos a desmontar a Vasari, partiendo de Vasari_". Solo le interesa el debate pictorico.  
-## Criticas el Greco a Vasari. Prox dia
+## Criticas el Greco a Vasari. Prox dia.  
+# TEMA 4: Johannes Joachim Winckelmann y la conciencia del metodo historico.  
+Vamos a reflexionar sobre las vias de conociemiento que habia en la europa de finales del barroco y S. XVIII. El conocimiento de lo que hoy llamamos conociiento clasico era desconocido por los europeos de la epoca, potencia *Turca* y mares bajo su dominio, ir pa grecia chungo.  
+Revindicar una grecia mas idealista que real tate del siglo. Habia relatos de viajereos.  
+Coleciones de la roma de los cardenales pj: esculturas que salian del usbsuelo de ciudades romanas, no se sabian, estaba indefinido, si eran griegas, romanas, grecia de pericles, mas tardia... no se sabia que era ogs griegos ni romanos. Distorsionada por el propio caso de estudio. Hasta que punto era habitual que a la hora de restaurar una pieza.- Fauno barberini y Ares Ludovisi, son reinvenciones mas que restauraciones el ares lo hizo bernini pj.  
+- Estas cuestiones hacen que sea muy dificil estudiar las piezas clasicas, pq no se saben ubicar ni na.  
+Uno de los meritos de Winckelman, plantear esta cuestion, desarrollarla.  
+Winckl nunca estuvo en grecia, su idea es mas ideologica en si que practica, si que estuvo en pompeya, herculano, napoles... murió asesinado en la localidad de Trieste.  
+## Conde Anne-Claude de Caylus
+Primer anticuario, empieza gracias a el y se termina convirtiendo en el oficio del arqueologo.  
+Antes daba igual la pieza mientras representa x valores clasicos, se tomaba x clasica, la idea de historia del arte que se tenia sobre la antiguedad, era einentemente filologica, los descubrimientos arqueologicos tenian mas valor, si los textos clasicos hablaban de ella. Pj. **Laoconte**, *Plinio hablaba de el*.  
+Este men tiene otro acercamiento a la obra de arte, pa el no es una pieza en la que buscar un referemdum filologico, si no se basa en elementos mas materiales: Materiales de la pieza, tx, f(x), posible finalidad, lugar en el que fue encontrada, seguimiento de la pieza x las posibles manos en las que ha pasado, interes muy material por la obra de arte. 
