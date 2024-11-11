@@ -187,3 +187,12 @@ Fragmento eneida virgilio en la que neptuno amenaza a los vientos, empieza rega�
 ![QuosEgo] (https://www.meisterdrucke.es/kunstwerke/400w/Marcantonio_Raimondi_-_Neptune_Calming_the_Tempest_That_Aeolus_Raised_Against_Aeneass_Fleet_-_(MeisterDrucke-1291515).jpg) 
 Imagen de neptuno a xrtir de siglo 16, apropieda y decorosa para adornar las fuentes monumentales que en ese momentose hacian en europa, el dios del mar era el motivo mas significativo para hacerlo.  
 Gesto de la mano del de la fontana di la piaza di bolonia, como aplacando a los vientos.  
+[11/noviembre]:#
+Hades significa en griego el invisible, designamos asi tambien al reino que gobierna y habita, el inframundo, es un dios muy poco querido, pq nadie se quiere morir, pero si ciertamente tuvo adoracion, pq esto suponia garantizarse algo en el mas allá. En las creencias griegas cmabia mucho la concepcion sobre el mas allá con el paso del tiempo, en un primer momento se dio esta idea del hades como lugar oscuro, sombrio, sin retorno en el cual las almas de los difuntos son fantasmas espiritus... A partir del S.IV, esto cambia no solamente en grecia, tambien mundo etrusco. A partir siglo IV surge la idea de la continuancion de la existencia en un mas alla feliz, la idea del pariso, que los griegos llamaron los campos eliseos.  
+Epitetos:
+- Iracundo Habitante de la masnion subterranea
+- Zeus Infernal (Dios infernal)
+- Ploutos (en gr significa abundancia)
+- El distante, el incansable, oscuro aquelonte 
+**Himmo orfico XVIII. *A pluton***.  
+- El fuerte Hades de despiadado Corazón que habita en la tierra *by Hesiodo en la Teogonía*
