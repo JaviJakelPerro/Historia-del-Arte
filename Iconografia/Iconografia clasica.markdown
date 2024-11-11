@@ -196,3 +196,39 @@ Epitetos:
 - El distante, el incansable, oscuro aquelonte 
 **Himmo orfico XVIII. *A pluton***.  
 - El fuerte Hades de despiadado Corazón que habita en la tierra *by Hesiodo en la Teogonía*
+Hades es una forma poetica de designar a Hades Pluton, pluton no es nombre latino, ya se decia en la grecia al señor de los muertos.  
+Se encargaba de que ningun vivo pudiera entrar en su reino y de que nadie pudiera escapar de alli. **Descencencia al mundo de los muertos *Catábasis***, anábasis es al cielo, **Catapontismo** ***bajar a por un tesoro al mar?***.  
+[#zzzzzzzzzzzzzzzzzzzzz<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<z<<<<<<<<<<<<<<<<ssa😎>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>]
+Relaciones amorosas:
+- *Persefone*. la hizo su esposa tras haberla raptado.
+- *Mintha*. Estrabon 8.3.14: Segun el mito, mintha fue una amante de Hades pisoteada por persefone. Fue transformada en menta de jardin.
+- *Leuce*. Amada de Hades y convertida a su muerte en un alamo blanco, sagrado en el Hades.  
+## Iconografia
+- Como **Aidoneus** (señor del Hades). Sale con el can Cerbero
+- Como Plutón (con cornucopia)
+Imagen similar a la de sus hermanos, siempre vestido (en la antiguedad), actitud reposada, imagen sombria, a falta de contexto zeus mas majestuoso, poseidon el mas dinamico y hades el mas sombrío.  
+La cornucopia caso Zeus es de la cabra maltea. Va a ser un atributo de muchas cosas que son buenas y derivan de la abundancia. Si hay paz en un estado hay abundancia, la bundancia genera felicidad, entonces paz abundancia alegria, todas estas personificaciones simbolicas tienen la cornucopia como agtributo iconografico. Es atributo de todo lo bueno, lo prospero y lo que produce prosperidad. En el interior de la tierra hay muchas riquezas, minerales, elementos naturales, tal. Por eso lo lleva.  
+More commons:
+- Corona de Laurel
+- Cetro
+- horquilla de aventar de dos puntas
+- antorcha
+- espigas, semillas
+- casco, que siempre se ve pero se trata del casco de la invisibilidad. le presta a algunos heroes pj pa matar gorgona
+- trono/ trono vacio
+- cerbero
+- abundante cabellera ondulada y barbada
+Temas more commons:
+- Rapto persefone
+- En el Hades sedente con persefone y otros personajes
+- En el Hades en representacion del banquete funerario
+- Como guardian del Hades
+Cetro + Arado : Démeter.  
+Version menos conocida de Hades es la de "granjero", en el mundo griego era lo mas comun representativo.  
+- **Simposiasta**: el que esta en el bankte
+- **Simpotriarca**: el q hace la fiesta
+- **Simposio**: la fiesta
+En el simposio cuando llegabas, te coronabas con diferentes objetos, flow ir fiesta de nochevieja y ponerse el cotillon. Idea de pertenencia y participacion en un grupo.  
+En la puerta del Hades estaba el palaccio.  
+Buscar hallazgo reciente 2013-14 Mosaico hallado en el interior de la tumba de amphipolis, atribuida a Hefastion. Nos pasa el ppt.  
+
