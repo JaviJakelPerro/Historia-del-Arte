@@ -246,3 +246,5 @@ Otra iconografia interesante es ella con el burro, una lampara (lucerna romana) 
 Las vestales que son?.  
 Vestal fue violada por marte el dios de la guerra, del junte nacio romulo y remo.  
 Hay una peluquera *video en yt: peluquera aficionada a la arqueologia* explica como se colocan las partes de los peinados vestales, se juntan diferentes tiras con el propio pelo, queda un tocado absolutamente extraordinario.  
+Virgenes vestales.  
+Meses de diciembre, mas frios, calendarios modernistas 1911 aparecen imagenes de estas vestales.  
