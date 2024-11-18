@@ -231,4 +231,18 @@ Version menos conocida de Hades es la de "granjero", en el mundo griego era lo m
 En el simposio cuando llegabas, te coronabas con diferentes objetos, flow ir fiesta de nochevieja y ponerse el cotillon. Idea de pertenencia y participacion en un grupo.  
 En la puerta del Hades estaba el palaccio.  
 Buscar hallazgo reciente 2013-14 Mosaico hallado en el interior de la tumba de amphipolis, atribuida a Hefastion. Nos pasa el ppt.  
-
+[18/noviembre]:#
+Esta hablando del fuego y de que las encargadas de encenderlo eran las mujeres jovenes, también estaba mencionando algo de Hestia (diosa y personificacion del hogar)
+Diosas virgenes hay 3 Artemis, Atenea y Hestia, en los 3 casos es por voluntad propia.  
+Todos los sacrificios rituales se hacian con fuego, aunque sea una diosa personifaicada, (el fuego antropomorfico) [escribirla/corrreo/pidiendo/pptx]:#  
+*Hestia Giustiniani* Copia romana de marnol un poco mas grande que el antural, la seño quiere pensar que es Hestia peor puede ser cualquiera de las otras dos (demeter, hera), Hera no suele llevar **Peplo**, demeter no tampco, solo esta razon no es valida para relacionar la obra pq puede haber muchas obras que no conozcamos, el peplo lo hacian las mujeres de buenas familias en sus casas, en sus propios telares confecionaban mantas y bordados para todos los mienbros de la familia, ejemplo fiel de mujer en el mundo griego es la churri de Odiseo, penelope?¿.  
+# Mundo Romano
+## Vesta  
+Peplo, cetro y cabeza velada.  
+**Atrium Vestae**. **Penates** se conservan en el foro romano, donde hay edificios muy relacionados con la diosa Vesta. Un templo circular (monoptero) son ciruculares pq recuerdan a ese hogar micenico. La regia donde llega eneas y el colegio sacerdotal de las estales.  
+La padlabra demon como espiritu, que pueden proteger, como genios del hogar, serpiente de la despensa. El icono de la farmacia tiene una serpiente pq te puede envenear pero tambien se hacen antidotos tal, la ruedecita tiene que ver con el fuego: De una representacion que ha salido en pantalla.  
+Unico mito destacable, sale de casa y la intentan violar, estaba medio dormida y priapo un semidios menor salvaje, con una voracidad sexual muy importante, ya que pertenece a estos dioses del cortejo dionisaco la intenta violar, un burro se puso a hacer ruidos y esta se desperto, echando el otro a correr, el burro es otro de sus agtributos iconograficos en el mundo romano.  
+Otra iconografia interesante es ella con el burro, una lampara (lucerna romana) y cetro, por supuesto con la cabeza  velada. Hecho que en el mundo romano es muy interesante, als mujeres romanas tenian que salir a la calle con la cabeza cubierta, damas omanas de gran nivel, emperatrices... estrato mas alto de la sociedad femenina se hizo representar en ocasiones con la apierncia de esas tres grandes diosas.  
+Las vestales que son?.  
+Vestal fue violada por marte el dios de la guerra, del junte nacio romulo y remo.  
+Hay una peluquera *video en yt: peluquera aficionada a la arqueologia* explica como se colocan las partes de los peinados vestales, se juntan diferentes tiras con el propio pelo, queda un tocado absolutamente extraordinario.  
