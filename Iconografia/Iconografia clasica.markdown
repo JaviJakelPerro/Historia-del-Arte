@@ -184,7 +184,7 @@ Motivo comun en la arquitectura griega clasica: ***Clipeo fromado por listones n
 **Pedum**: Callado rustico.  
 ### Quos Ego 
 Fragmento eneida virgilio en la que neptuno amenaza a los vientos, empieza regañandoles diciendo "Quos Ego", es ese momento en el que neptuno le implora a los vientos que se calmen. 
-![QuosEgo] (https://www.meisterdrucke.es/kunstwerke/400w/Marcantonio_Raimondi_-_Neptune_Calming_the_Tempest_That_Aeolus_Raised_Against_Aeneass_Fleet_-_(MeisterDrucke-1291515).jpg) 
+![QuosEgo](https://www.meisterdrucke.es/kunstwerke/400w/Marcantonio_Raimondi_-_Neptune_Calming_the_Tempest_That_Aeolus_Raised_Against_Aeneass_Fleet_-_(MeisterDrucke-1291515).jpg) 
 Imagen de neptuno a xrtir de siglo 16, apropieda y decorosa para adornar las fuentes monumentales que en ese momentose hacian en europa, el dios del mar era el motivo mas significativo para hacerlo.  
 Gesto de la mano del de la fontana di la piaza di bolonia, como aplacando a los vientos.  
 [11/noviembre]:#
@@ -248,3 +248,40 @@ Vestal fue violada por marte el dios de la guerra, del junte nacio romulo y remo
 Hay una peluquera *video en yt: peluquera aficionada a la arqueologia* explica como se colocan las partes de los peinados vestales, se juntan diferentes tiras con el propio pelo, queda un tocado absolutamente extraordinario.  
 Virgenes vestales.  
 Meses de diciembre, mas frios, calendarios modernistas 1911 aparecen imagenes de estas vestales.  
+[26/nov]:#
+**Demeter cherchell**.  
+Si solo pudiera coger una imagen de demeter: *Demeter os Knidos*, 350-330 b.c. Excavated in 1858 by british, n the sancttuary of demeter at Triopion, Knidos, Caria. (x turquia), igualque el zeus de fidias fue el modelo de dios padre de los dioses, este es el modelo en epoca de hisipo, algunos espc, la han mencionado como obra del circulo cercano de hisipo, este fue el escultor de alejandro magno, maestro aristoteles, pelez, la crem d la crem, la primera division de los artistas griegos del siglo 4, nadie podia esculpir a alejandro magno, solo hisipo.  
+Espigas elemento completamente rebundante, repeticion constante de un motivo.  
+**En la A.G**
+### Triptolemo
+Mito.  
+Maria Jose pena 1995, El culto a Demeter y Core en Cartago. Aspectos iconograficos.  
+Muchas emperatrices que tambien se hacen representar bajo la apariencia de Ceres.  
+Hoces, espigas : ceres.  
+**Sin baco y ceres, venus esta fria**
+[2/Diciembre]:#
+## Venus
+Texto Hesiodo teogonia tiene mucha repercusion, mas adelante se repetian mucho las ideas que se trataban ahi.  
+Afrodita en muchos testos esta asociada al mar, invocada x los navegantes, es una diosa tbb urania, hija de urano, del cielo.  
+Los romanos la convirtieron en una diosa planetaria, y era esta estrella la que les guiaba (mirar tema de desde donde se ve/estudios relacionados a la estrella.).  
+Temas
+**Venus ANADIOMENE** Igual que Gea, hay pocas mas que se representen asi con los cuerpos cortados, para indicar q la parte inferior esta todavia debajo.  
+*Afrodita emerge del mar* La asisten las Gracias, probablememente relieve de marmol llamado "Trono Ludivisi", Ca. 470-60 a.C. tx d "paños mojados" (ahora decir esto esta mal, por lo que lo suyo es entrecomillarlo y como citarlo como que se dice asi).  
+![Afrodita](https://upload.wikimedia.org/wikipedia/commons/thumb/8/83/Ludovisi_throne_Altemps_Inv8570.jpg/1200px-Ludovisi_throne_Altemps_Inv8570.jpg)
+Se discute aun a dia de hoy sobre su originalidad.  
+Tiempo Helenistico nace la idea de que surge de la concha, llevaba una cajita en la mano haciendo referencia a los textos.  
+**Arqueta de Proiecta**  Importante tt.  
+**Venus Boticceli** Momento en el que la diosa esta llegando a la orilla en una velera. 
+**Noel Copyel** 1732, Oil on Canvas, triunfo de venus. se conservan muchas cosas de la antiguedad, manto que flota, mov viento, ictiocentauros... pero el tema se concibe como algo alegre, luminoso... el triunfo del amor, en un momento en el que las costumbres sociales son muy XXXX.  Palomas se convierton en las aves favoritas de la Diosa, muchas veces aparecen asociadas a ella.  
+Aunq en los libros ponga nacimiento d venus, la mayoria son triunfos de la misma.  
+Los textos los pasa.  
+Siempre esta en oposicion a los disoes de la guerra.  
+oposicion Atenea y Afrodita, atenea escapa al yugo. nsq + viene en los textos.  
+Afrodita aparece asociada a los elementos naturales.  
+Afrodita y Adonis representacion, adonis un poco despistaillo.  
+Hijos d arfodrita:  
+- Peitho (la persuasion)
+- Priapo- Tenido de Dioniso
+- Hermafrodito. Hijo de hermes y afdt.  
+La **erostasia** (echar ojal) balanza en las manos de la diosa, eros y anteros, cual tiene mas fundamento.  
+Venus punicas o pubicas, no se bien que ha dicho.  
