@@ -285,3 +285,114 @@ Hijos d arfodrita:
 - Hermafrodito. Hijo de hermes y afdt.  
 La **erostasia** (echar ojal) balanza en las manos de la diosa, eros y anteros, cual tiene mas fundamento.  
 Venus punicas o pubicas, no se bien que ha dicho.  
+[3/Diciembre]:#
+### Afrodita Calipigia (de bellas nalgas) (Ἀφροδίτη Καλλίπυγος )
+### Afrodita de Melos (Venus de Milo) s.II
+
+Fue afrodita la primera en representarse en bolas, integralmente.  
+### Muy importante escultura 
+Por un escultor asiatico segun cita plinio, de epoca helenistica. Muy naturalista y famosa. Venus que se esta bañando venus que se lava a si misma, venus que lavatem sense.  
+### Venus Victrix  
+o Venus victoriosa, iconos tales como la manzana, proveniente del juicio d paris, ella medio tapandose...  
+De acuerdo con el postulado de los nuevos credos de la iglesia, la imagen de venus se demoniza, en la edad media, "todo lo malo y perjudicial de la humanidad, suceden los viernes, que es el dia dedicado a la diosa venus, de aqui deriva tbb lo del viernes 13, a cristo lo mataron en viernes tbb." ***Master taking of tarento, triunfo de venus***.  
+**ALGO CAE DE VENUS EN EL EXAMEN (considerado dificil xxrte de la seño y computado como tal en el examen)**
+# Atenea
+En los primeros tiempos, poemas homericos, hiliada, la señalan como una diosa guerrera, y poco a poco el perfil de las dioses se va completando con otras cosas, pj, diosa de la razon, no solo es la inteligencia, si no la inteligencia aplicada, la artesania.  
+Idea de diosa guerrera muy muy importante, en el mundo griego, la guerra que esta patrocina no es una guerra sanguinaria, es mas reflexiva, que existe para defender, (en la iliada, no es la que sitia troya???).  
+Se la llama de mil formas, por que tiene muchas caras:
+- Areia
+- Ergane
+- Glaucopis. Hace referencia al color de sus ojos, 
+- Hipia. En algunas fuentes se la considera la inventora del carro
+- Hygeía. Como diosa de la salud, mas romana.
+- Niké. Epiteto bajo el cual fue adorada la diosa en el santuario en su honor se elevaba en la Acropolis de Megara, siempre va acompañada de la Niké, pq es ella la que le otorga la victoria a los heroes.
+- Parthenos. Relacionado con su virginidad 
+- Palas. Su significado y origen es incierto. Segun la explicacion mas aceptada, significa, muchacha o doncella, aunque sugirio en la antiguedad que pudiera derivarse de pallein (blandir), ya que la diosa es frecuentemente representada blandiendo una lanza(Estrabon, geografia 17.816). Otras versiones apuntan a que el epiteto palas procede de una amiga de atenea con dicho nombre hija de triton, cn quien la diosa solia practicar juegos de guerra y a quien mato acidentalmente. Esto viene de una leyenda africana. Lamentando la muerte de su compañera de juegos, la divinidad creo una imagen de ella que colocoo en su égida. Este era el famoso Paladio (uno de los penates de troia que llega al foro romano) (lo cuenta todo apolodoro, fuente muy tardia que buscaba hacer coherentes todas las historias). El paladio este cayo del cielo en suelo troyano y sirvio como talisman protector de la ciudad ????
+- Polias. De la ciudad, como protectora de atenas y de la acropolis, pero tbb de otras ciudaddes como argos, esparta, gortina, lindos, larisa.  
+- Tritogenia.  
+## Atributos iconograficos.  
+Estatua romana, *Atenea Varvakeion* se considera la mejor copia romana de la atenea parthenos de fidias, la cual solo conocemos a traves de descripciones de plinio y pausanias. En esta parece estar todo lo que esos textos antiguos nos cuentan, y la myoria de atributos iconograficos.  
+Es una diosa joven, pero antigua, virgen, que viste Peplo, lleva la egida, con el gornonellon en el centro, tiene una nike, una victoria en su mano, lleva un yelmo de doble creston y porta el escudo con una serpiente que es el simbolo de xxxx el primer rey mitico de Atenas, q intenta violar a nsqn y tal. 
+[9/diciembre]:#
+La egida de atenea es un distintivo que aparece bien representado, ya que ademas de mostrarnos esa serpiente de la cabeza de medusa, ademas, en el propio centro del mascaron aparece el gorgoneillon, la cabeza.  
+Hay dos figuras que en la iconografia pueden suscitar dudas, la minerva romana y la dea roma.  
+Al llegar el periodo clasico, los artistas eluden cualquier tipo de detalle y conotacion que pueda ser terrenal, que pueda ser propia del mundo de los mortales, diosas y dioses adquieren otros prototipos de una belleza, fria, serena y que hay un modelo de fidias para la acropolis de Lemmos, solo se conoce a traves de las copias romanas de la epoca, el modelo tenia el semblamente grave de facciones perfectas, inexpresivo, pelo corto, muy natural y solamente ceñida la cabeza con una diadema.  
+Las diosas femeninas parece que no tienen rasgos femeninmos y los dioses si se parecen mujeres, apolo, tal...  
+Segun nos cuentan autores antiguos, atenea nace completamente armada de la cabeza de zeus, en ese nacimiento los protagonistas son el padre  y la hija y hay mas dioses.  
+Atenea Poliada, a esta diosa estuvo dedicado el viejo templo, la atenea parthenos se refiere al epiteto de la imagen que se veneraba en el partenon del templo de la diosa virgen, aqui se sustituyo al viejo templo.  
+**Disputa con Posidon** tema recurrente, es un tema de calado politico y unos de los lugares mas importantes de su representacion fue el fronton oeste del partenon, pero quedo muy dañado en el 1687 cuando la flota veneciana ataco atenas y un cañonazo volo una parte del mismo.  
+A los atributos antiguos se van sumando atributos nuevos con el tiempo, pj caballo junto a poseidon.  
+Minerva en tarracp, tarragona, era la patrona, en la muralla hay un relieve que solo conserva la parte inferior, y representa a una minerva como  "gustus urbis", la protectora de la ciudad.  
+Golzius. la representa desnuda y como diosa de la sabiduria, como guerrera solo queda la lanza y el casco. (sabiduria frente a la ignorancia, sale midas detras con las orejas de burro).  
+![Atenea](https://seguicollar.wordpress.com/wp-content/uploads/2007/07/minervagoltzius.jpg)
+La de Klimnt lo mimso cae, en lugar de sostener la nike, esta sostiene una figuruta (un idolo)de la verdad desnuda, uno de los simbolosos de la secesion vieneesa, de alguna manera klimt actualiza la imagen de atenea, cambiando los simbolos a lecturas de su  tiempo, pero con su antigua potestad, los ojos glaucos, transmiten una imagen glacial, por detras hay unas figuras que son copias literares de ceramicas griegas del periodo arcaico. Klimt lo trae desde el punto de vista tanto formal como simbolico, las escamas de la egida los usa para hacer refulgir esos colores dorados que tanto le gustaban al pintor. **Ficha en el Mythos blog**.  
+Minerva gustos urbis en el circulo de bellas artes terraza, estilo muy realista y sobrio, completamente vestida a la antigua.  
+Atenea solo entra en combate cuando es necesario defender la ciudad que protege, Atenea Promachos, 14m de altura, 470bc, de fidias (creo que si). es el modelo que se utilizo para las anforaas panatenaicas, son los trofeos que se otorgaban a los vencedores en las competiciones de las grandes panateneas: Una pieza sagrada otorgada al vencedor, en una cara tenia a atenea en actitud de ataque y en la otra una representacion de la actividad que se habia realoizado. La diosa tenia sus atributor y estaba flanqueada por dos columnas, en las que habia bien gallos (animal de pelea, de lucha) o imagenes de la victoria. Cuando llevan inscripciones es que fue utilizada de verdad como trofeo, verdaderamente panatenaica, cuando no llevvan inscripciones se les llama pseudopanatenaicas, el esquema triunfo mucho y la gente se las compraba de recuerdo para contener ahi aceite o lo que fuera.  
+(celeberrima, que palabra mas wpa).  
+Nacimiento de Erictonio, tbb tema muy tratado.  
+## Atenea como protectora de los heroes
+Muy frecuente que aocmpañe a los heroes en sus hazañas mas destacadas, siempre esta identificada y es muy facil de distinguir ya que aparece muy bien caracterizada.  
+Con perseo tbb aparece, dandole las armas, mientras le corta la cabeza... ella es la que le dice que no mire al monstruo, si no que lo hicera a traves del reflejo del escudo, tbb le entrega la bolsita para queguardara la cabeza (en gr kibisis), cuando le muerte de medusa sale un caballo, llamado arion.  
+*Muerte del minotauro de Teseo* tema casi politico, el rey de minos de creta exigia el cautverio de 15 jovenes y jovenas atenienses, pero teseova a creta, con ayuda de ariadna da muerte al monstruo, GRECIA deja de estar bajo el yugo y esclavitud del rey minos. Mito completamente politico.  
+**COPA DE ASION**, CAE, EL HEROE QUE SE ENFRENTA DESNUDO A UNA FUERZA BRUTA Y MONSTRUOSA, EN ESTE CASO EL MINOTAURO, se enfrenta desnudo y cn la espada pq la acompaña la diosa, es invisible a los ojos humanos, pero siempre acompaña al heroe.  
+Se basa mucho aqui picasso para su serie de grabado, ultimos años del siglo 19, se les da lla vuelta al mito y los monstruos de la mitologia antigua pasan a ser las victimas, pq son monstruos que se huimanizan hasta el punto que parecen mas debiles que los heroes que les dan muerte o les attacan.  
+![copa asion](https://upload.wikimedia.org/wikipedia/commons/thumb/6/63/Copa_de_Aison_-_M.A.N._01.jpg/2560px-Copa_de_Aison_-_M.A.N._01.jpg)  
+En los combates guerreros la diosa aparece siempre al lado de sus protegidos.  
+**La Iliada**, la seño sabe quien los que combaten por la presencia de la diosa: son aquiles y hector, cuando muere hector, combate final.  
+**La diosa se convierte en protectora de las artes y la musica**, tiene que ver con su encuentro con el fauno Marsias, se hizo muy famoso por un grupo broncineo de miron, que conocemos a traves de las copias romanas. Mirar historieta. Es una imagen en la que por un lado nos muestra una instantanea.  
+**Las musas** Son diosas de disciplinas intelectuales, la iconografia de artes liberales en epocas posteriores derivan d la iconografia de las musas, aparece en compañia d las 9 musas de vexz en cuando la atenea.  
+## Protectora de las artisanias. 
+Atenea Ergane (erga: trabajo), que sea de los escultores solo ocupa lugar en grecia, tambien relacionada a las tejedoras.  
+En algunas esta dando los ultimos retoques en el taller, otras acompañando al escultor... El casco no se lo quita de ninguna manera, diciendono quien es. Sabemos tbb a traves de las argonauticas, que ella ayudo a la construcion de la nave argos.  
+El foro transitorio romano, esta dedicado a minerva, y todos los relieves que decoran el friso estan dedicados al mito de aracne. En la edad media en los manustricos se trata mucho el tema de aracne.  
+## Diosa de la salud
+Tenemos exvotos en la antiguedad, x el contexto arqueologico se sabe, suele tener vicotias en la mano o cosas que tengan relacion.  
+## Fortaleza y virtud
+A partir del siglo xvi, minerva pasa a ser el simbolo de dos ideas, la virtud y la fortaleza, por eso hay retratos mitologicos y alegorias mas complejas en las que la imagen de minerva aluden a eso.  
+**OLIVO** tambien icono suyo recordar.  
+Hay un cuadro especialmete interesante, *Minerva expulsando a los vicios,* **Mantegna, 1502** Interesante las inscripciones que aparecen. Va a poner la presentacion, cuadro de mantegna comentado quiere que lo tengamos y lo miremos.  
+En el examen caen dos imagenes, a lomejor lo mas seguro es que nos ponga algo para que tengamos ocpion de elegir, ponernos 3 y escoger 2, va a poner el examen muy facil, con lo que a ella le parece mas facil, su intencion es que nos suspendamos. Libro fuentes clasicas, el libro que acaba de publicar dice que esta muy bien escrito.  Poder comprar el libro de la seño, me lo pido pa reyes.  
+[10/diciembre/24]:#
+[Ártemis
+https://www.dropbox.com/scl/fi/v6ar45fconbx25ae9w0nq/collab-recording-RTEMIS.mp4?rlkey=j5yrk50hadyyq54vhyx7wr2qw&st=atimapdz&dl=0
+Hefesto
+https://www.dropbox.com/scl/fi/o1hzl0s0bbdged7nisr09/collab-recording-HEFESTO.mp4?rlkey=x59jn4byhexnfmxk37kzneldx&st=cplkii58&dl=0
+Ares
+https://www.dropbox.com/scl/fi/mu07rf7zpe4nk7k2rtng6/collab-recording-ARES.mp4?rlkey=ixtm1z1kwsqtt6m49d6c8jxwr&st=ag7ewr05&dl=0
+]:#
+# Hermes
+Nacio en una gruta, hijo de Zeus y Maya Una (la mayor de las pleyades), su f(x) ppl era la de un dios pastoril, paso a ser el de los cminos, fronteras, comerciantes, ladrones, mensajeros y heraldos. Tbb gimansios y atletas, habia una estatua suya en cada gimansio. Tbb fue un dios muy precoz, na mas nacer, emepzo a hacer coass extrañas impropias de un recien nacido, su primera hazaña que tiene es la que se cuenta en el primer fragmento del himno homerrico donde roba un rebaño de vacas que era de su hermano apolo para disimularlo hace una treta con las patas de las vacas. Su primera treta es. Hay muchos txts y n no quiere perder el timepo con ellos pero desde su nacimiento aparece como un dios que engaña, tbb muy habil para crear cosas, esto en parte tbb supuso la ira de hefesto (creo q dius).  
+## Epitetos
+Como se nombraba en fuentes antiguas:
+- Politropos. El que tiene muchas formas, muchos trabajos, muchas aventuras.
+- Logios: Lo comparte con Apolo
+- Agoreo. Tenia estatua en el agora, donde se hacian las trascacciones.  
+Muy locuaz, sabia vender, tema importante pa las relaciones comerciales.  
+- Diactoros. Es la palabra que le relaciona como mensajero de los dioses. 
+"Repartidor de bebes en los lugares de guarda": es el que lleva a dioniso a la isla de nosque cuando es pequeño para que lo cuiden las ninfas.  
+- Heraldo de los dioses.  
+## Hermas 
+Culto muy antiguo, su origen esta intimamente relacionado con las hermas que inicialmente tenian la forma mas primitica de un monton de piedras que era alimentado por todos los caminantes que pasaban junto a ellas¨: cada persona que pasaba por alli depositaba una piedra nueva en el monton para pedir proteccion durante su trayecto.  
+Las hermas pasaron a ser santuarios rurales, donde sobre todo en las encrucijadas del camino, la gente que pasaba podia hacer un alto y pedir.  
+## Atributos iconograficos
+Tenemos un dios de los cmainos y viajeros, por lo que va vestido de la ocasion, atuendo comodo, sombrero de ala ancha que le puede proteger de la lluvia, a veces botas, sandalias... tanto los pies (taloneras aladas), como las zapas q lleve, como el gorro puede estar alado.  
+**El caduceo** una especie de varita magica de apolo, que le cede a hermes a cambio de la lira, no le enseña todos los trucos de la misma.
+De hermes hermetismo, en el renaciemento crea una corriente que conocemos como hermetismo.
+Hermes y Apolo medio hermanos comparten muchas caracteristicas.  
+El sombrero se llama **PETASO**, puede llevar un casquete de forma circular o conico. algo de pilos, que esta relacionado al hermes agoreo.  
+El gorro frigio es menos rigido y no se sostiene solo o algo asin.  
+El que una moneda tenga un caduceo como unico motivo de decoracion en su puño nos indica la presencia de hermes, en ocasiones, este caduceo es alado, se conocen caduceos de bronces de epoca romana, vara que remata en serpientes, flow baston moises, el cual tambien tiene las serpientes y puede hacer magia.  
+Tiene mucha siempre, representaciones muy dinamicas, en el mundo arcaico (...) se pierde y va con otra cosa.  
+Tiene un cortejo de satiros que a su vez son sus ayudantes.  
+**La lira otro de sus atributos, fue su inventor**.  
+Tambien asociado a la muerte y la resurrecion.  
+En fechas muy tardias, grabados renacimiento, barroco su carro aparece tirado por gallos, pero esto en la antiguedad no se vio.  
+### Hermas
+No se sabe muchas veces si son dedicadas a hermes o a dionisio, la misma iconografia da muchos datos sobre el culto que recibian estas hermas, en las vasijas ceramicas estan pintadas escenas en las que aparece.  
+En ocasiones se mescla la iconografia de los dos.  
+El dios como psicopompo (ψυχοπομπός), guia de almas.
+Existen las hermas dobles que se utilizaban para decorar, algunas tenian la cara de filosofos, pensadores...  
+### Hermes de olimpia
+no se sabe na del, og griego?, conserva policormia, ademas pausaniaas la describe. Pudiera ser que es de el que dice, esta en el museo de olimpia, y la seño sintio la misma sensacion que cuando vio el david de miguel angel,
+## Dios de los ladrones
+El robo a las vacas le convierte en dios de los ladrones,
