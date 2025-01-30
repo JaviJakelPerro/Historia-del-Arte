@@ -21,3 +21,10 @@ La pelicula vive del espectaculo que se esta montando, es lo que le interesa, se
 Remite a ciertos espacion de recepcion: vodevil, ferias,parque de atracciones... También a ciertas formas (interaccion dialogo con la pantalla o explicador), *cine de exhibidores*.  
 No es un paso previo al desarrollo narrativo, en esos primeros 50 años hay mas invenciones que en los proximos "coger cn pinzas no se a que se refiere".  
 300: cine de accion no busca profundidad psicologica, es otro tipo de relacion con el espectador. (no se pq mete esto aqui pero bue).  
+## 1903 The life of the american fireman.
+A medio camino entre lo anterior y la narrativa mas clasica.  
+6 Minutos de duración.  
+Planos detalle, generales, cortes (da la sensacion cuando bajan por la barra de que tardan en llegar, el montaje es demasiado visible, se busca mejorar eso durante los siguientes años).  
+La escena se repite dos veces en dos planos distintos, para contar la historia desde dos perspectivas. No es fluido el montaje, tartamudea.  
+## Montaje de continuidad
+Efecto de ajuste, sincronia, continuidad, a pesar de los distintos planos, una narración invisible.  
