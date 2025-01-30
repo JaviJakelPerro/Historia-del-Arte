@@ -11,4 +11,13 @@ Fué un divertimento popular, que duro unos 10 años, no sera extraño empezar c
 Les gustaba mucho ver espectaculos de cosa que ya conocian, les impresiona ver aquello que ya conocen.  
 Redescrubir la naturaleza, mediante un espectaculo controlado.  
 ## Cine de Atraciones
-Termino acuñado en el 1986, por T. Gunning, plantea una relectura y revalorizacion del cine de los primeros años, entendiendolo como un cine no plenamente desarrollado
+Termino acuñado en el 1986, por T. Gunning, plantea una relectura y revalorizacion del cine de los primeros años, entendiendolo como un cine no plenamente desarrollado (...).  
+## Elementos esteticos
+- Mirada al espectador. Ruptura 4rta pared y integraciion del espectador en la puesta en escena.  
+- La forma en la que se interactua con el espectador ingnora el mundo de la ficion. La acccion no se desarrolla en el mundo de la ficcion solamente, vamos que estan permarrompiendo la 4ta paré.  
+# El viaje a luna
+La pelicula vive del espectaculo que se esta montando, es lo que le interesa, se pinto a mano cada fotograma. Es un cine mas de exhibicion que de producion, si al exhibidor le interesa pintar una bandera la pinta, cambiar el orden de los rollos... etc Al no ser peliculas tan complejas, y ser mas episodicas, funcionan comom entes mas menos cerrrados, que se pueden ajustar.  
+## Que implica esto a la historia del cine
+Remite a ciertos espacion de recepcion: vodevil, ferias,parque de atracciones... También a ciertas formas (interaccion dialogo con la pantalla o explicador), *cine de exhibidores*.  
+No es un paso previo al desarrollo narrativo, en esos primeros 50 años hay mas invenciones que en los proximos "coger cn pinzas no se a que se refiere".  
+300: cine de accion no busca profundidad psicologica, es otro tipo de relacion con el espectador. (no se pq mete esto aqui pero bue).  
