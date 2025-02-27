@@ -29,3 +29,13 @@ La escena se repite dos veces en dos planos distintos, para contar la historia d
 ## Montaje de continuidad
 Efecto de ajuste, sincronia, continuidad, a pesar de los distintos planos, una narración invisible.  
 [27/febrero]:#
+# ? Variaciones Realistas
+## Rossellini: superacion del realismo, trilogia de la soledad.
+Stromboli, europe 51, journey to italy. Van de la exploración del alma humana, peliculas humanistas que se centran en explorar el mundo individual de los personajes.  
+Journey to italy. Nos interesa por su relevancia artistica, para nada fue un taquillazo, de hecho fracaso en italia y usa, si que se le diño reconociemnto en francia.  
+(...)
+## (...) Surcos J.A. Nieves Conde, 1951
+Cineasta que se movia dentro del circulo falangista en los grupos de poder.  
+Critica desde el regimen, considerado cine neorrelaista.  
+## Del realismo socialista al realismo critico
+(...)
