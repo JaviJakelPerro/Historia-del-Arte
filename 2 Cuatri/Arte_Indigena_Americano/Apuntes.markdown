@@ -52,4 +52,67 @@ En aquellos lugares que no eran zona caliza se dan los Chultún, pozos artificia
 - Jefe supremo.  
 ### NOSEQ
 ### Tikal
-<<>>
+[27/febrero]:#
+Olmecas cultura del preclasico, tercera fase, los mayas ocupan toda la cronologia mesoamericana.  
+Tikal esta en guatemala, no pertenece a mexico, es mas complicado llegar ahi por temas de fronteras que mexico.  
+Habran excavado un 5% de los 5k de edificios que hay por ahi.  
+#### Acropolis norte
+Construcciones piramidales con algunos templos, hay una acropolis real, cada gobernante fue añadiendo su piramide correspondiente para que lo enterraran ahi. También hay viviendas y palacios.  
+Al lado de la acropolis central hay una cancha de juegos de pelota, en este caso no tenia los aros para quepasara la pelota. (ya hablaremos de ellos, normas y tal).  
+Hay muchos templos, pero destacan:
+-  *Templo de las mascaras*: Escaleras, llevan a piramidey a la cresteria, con mascarones, de aqui su nombre, templo funerario ceremonial, 38m de h pero se calcula que tenia 42, datado en el 700 d.c. Estela altar, a los pies de las piramides y templos.   
+- **Templo de la serpiente bicefala**
+[mandarle al profe un correo con una lista de todos los correos para que el copie y pegue y pueda mandarnos cosas]:# 
+Se encuentran multitud de estelas en las ciudades mayas, pj *estela 31*.  
+Lo que quiere que se nos quede, es lo siguiente: los de teotihuacan invadieron tikal, se sabe la fecha exacta gracias a las estelas, y se puso un gobernador teoticual ahi.  
+**TEOTIHUACAN CAE EN EL EXAMEN**
+- **Templo del Gran Jaguar**. Todo encalado y pintado.  
+### Palenque
+Fue una de las ciudades mas poderosas
+No tiene esas piramides que hemos visto en Tikal.  
+Su gobernante Pakal el grande, llego a vivir 80 años y gobernar mas de 60 años *Kínich Haanab Pakal*, desarrollo la ciudad arquitectonicamente, prinpipales obras:
+- El palacio
+- Templo de las inscripciones con la tumba de Pakal. Tapa del sarcofago, todo tallado en una sola piedra  
+Todo pintado, se sabe por analisis quimico de las paredes.  
+## Postclasico Maya, Chichen Itza y Mayapan.  
+El clasico maya termina con el fin de los mayas, los que sobrevivieron se fueron al norte y ahi hicieron la ciudad de Chichen Itza, esas zonas del norte de la peninsula de yucatan destacan por sus cenotes.  
+- *Castillo templo de Kukulcán*: Templo de la serpiente alada, la conocemos como quetzalcoatl, es el mimso nombre que kukulcan. Destacan las 4 escaleras, una para cada lado y lo encajona la escalera.  Solsticio de invierno se ilumina el cuerpo de la serpiente y la cabeza al completo. En cuanto a arquitectura, no tiraban edificios viejos, los conservaban y construian encima el nuevo edificio. Este templo, tiene otro templo dentro. 
+- *Templo de los guerreros*. Una especia de palacio con muchas columnas y el Chac Mool (El Chac Mool es una figura de piedra que representa a un hombre reclinado con la cabeza girada hacia un lado y sosteniendo un cuenco o plato sobre su vientre. Estas esculturas se encuentran en diversas culturas de Mesoamérica, pero son especialmente comunes en la cultura tolteca y maya. Se cree que el cuenco servía para depositar ofrendas, corazones humanos o sangre de sacrificios. Los Chac Mool suelen encontrarse en la entrada de templos y altares, especialmente en sitios como Chichén Itzá, Tula y Tenochtitlán.).  
+- *El gran juego de pelota de Chichen*. Iba de pasar la pelota por un aro, se sacrificaba a alguno de los dos equipos, no se sabe si al ganador o al perdedor. El jugador de pelota va vestido completamente.  
+- *Tzompantli*: Altar de los craneos.  
+Eran grandes astronomos y grandes matematicos, tenian observatorios para las estrellas.  
+Lo que destaca de los mayas es la arquitectura.  
+## Los mayas en el T Clasico. La arquitectura.  
+Periodo clasico temprano, se cristalizan los tasgos mayas, contruciones de estelas y altar, arco maya y boveda en saledizo- arco falso, ceramica policromada, escritura, la cuenca larga.  
+Distintos estilos arquitectonicos tenian, veremos 5 de ellos (puuc, chenes, rio bec, peten, usumacinta).  
+### Estilo Peten
+Se caracteriza por:
+- las piramides inclinadas
+- Templos con cresterias huecas y altas sobre cuartos trasteros 
+- (...) lo pasa to rapido.  
+Sistema de construcion de talud-tablero. consiste en que a la hora de construir hacen el muro primero oblicuo, luego recto y luego oblicuo de nuevo. Rago arquitectonico tipico de toda mesoamerico, se considera que nacio en teotihuacan.  
+## Estilo Usumacinta
+Se da en palenque: 
+- Edificios elegantes esculturas en estuco y piedra 
+- (...) lo pasa to rapido (bis).  
+En palenque
+*La tumba de la reina roja*
+- *Templo de la calavera*
+Balam en maya significa jaguar, Balam II construyo 3 templos, el del sol, el de la cruz y el de la cruz foliada.
+## Rio Bec
+Edificios de torres paralelas, esquinas redondeadas y escaleras simbolicas (...)
+- *Templo B, Rio Bec* Es una reproducion del sistema piramidal de templos, pero no se puede acceder, edificio bajo y alargado de doble crujia, dos torres macizas con un santuario simulado. 
+- *Edificio I* Igual, no se puede subir
+Ornamentacion: (...)
+Lo que destaca en el rio bec son imitaciones de templos y mucha decoración.  
+## Chenes
+Lo caracteriza las fachadas totalmente decoradas con mascaras en las puertas. Crestarias, mascaras (...) Siempre la estela en la entrada del templo.  
+## Puuc
+Puertas multiples formadas por columnas, vanos estrechos (...)
+edificios bajos y simetricos, abuso de columnas y decoraion mascarones (Sayil).  
+- *Uxmal* yacatan mexico, panorama del grupo central (...) habia un templo, juego de pelota y casa para las monjas. Tiene hasta 5 fases (...).  
+Chac = Tlaloc; el de la lluvia se representa con una trompa rollo elefante.  
+Mas del estilo puuc, arcos mayas y escalinatas, "voladas", tenia puertas a la ciudad tipo puerta de alcala es el caso de Labná, de hecho mola mas. Tambien hay conservados mas simples, como el de Kabah, eran sitios donde comenzaban o terminaban las calzadas.  
+Arqueologos entre dos paredes buscando imagenes mayas, no rellenaban el hueco los mayas, dejaban un pasillo por el que poder andar y ya alrededor otro templo.  
+- *La esclaera de los jeroglificos* escalera que te cuenta la historia, es un libro tallado en piedra, te cuenta todo, los gobernantes cada año, que hizo cada uno...  
+[Hay un master de esto]:#
