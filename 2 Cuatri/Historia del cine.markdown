@@ -28,3 +28,4 @@ Planos detalle, generales, cortes (da la sensacion cuando bajan por la barra de 
 La escena se repite dos veces en dos planos distintos, para contar la historia desde dos perspectivas. No es fluido el montaje, tartamudea.  
 ## Montaje de continuidad
 Efecto de ajuste, sincronia, continuidad, a pesar de los distintos planos, una narración invisible.  
+[27/febrero]:#
