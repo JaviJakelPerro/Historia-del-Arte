@@ -116,3 +116,11 @@ Mas del estilo puuc, arcos mayas y escalinatas, "voladas", tenia puertas a la ci
 Arqueologos entre dos paredes buscando imagenes mayas, no rellenaban el hueco los mayas, dejaban un pasillo por el que poder andar y ya alrededor otro templo.  
 - *La esclaera de los jeroglificos* escalera que te cuenta la historia, es un libro tallado en piedra, te cuenta todo, los gobernantes cada año, que hizo cada uno...  
 [Hay un master de esto]:#
+[3/april]:#
+de los andes cae una pregunta,hay que decir que clima hay siempre, tambien las rocas y materiales y tal.  
+culto a la cabeza cortada y el felino, en el castillo o templo nuevo, es una piramide mayor.  
+huanca, as monolito.  
+el dragon macho no cae, aun a dia de hoy no se sabe bien qes.  
+estela raimondi. aparece una deidad principal (sale a xrtir de aqui en muchos sitios) aparece esta deidad, dios de las varas o de los baculos hasta en los Incas (para ellos el dios villacorcha o algo asi).  
+si pone algo de ceramica en el examen va a ser "mochica" o algo asi.  
+imagen enseña de el dios de las varas, representado en muchos sitios, nazca tal... es MUY IMPORTANTE este tio 
